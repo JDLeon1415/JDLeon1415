@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about videojuegos no c mas, estoi perdido
 - 📫 How to reach me: no c
 - 😄 Pronouns: xd
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: .
 -->
