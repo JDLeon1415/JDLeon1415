@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with conseguir chamba
 - 💬 Ask me about videojuegos no c mas, estoi perdido
 - 📫 How to reach me: no c
-- 😄 Pronouns: ...
+- 😄 Pronouns: xd
 - ⚡ Fun fact: ...
 -->
